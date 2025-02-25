@@ -1,3 +1,5 @@
+
+https://youtu.be/pckRbEEdH78?si=D_rgQj_c56daJtpy
 # CF-IPTV
 # HKDVB Setup Script
 
